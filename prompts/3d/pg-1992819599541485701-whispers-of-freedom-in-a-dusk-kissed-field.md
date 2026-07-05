@@ -1,3 +1,4 @@
+<img width="3072" height="4096" alt="1000036268" src="https://github.com/user-attachments/assets/b13c1946-9d19-4462-a783-bad2cb4e20ba" />
 ---
 title: Whispers of Freedom in a Dusk-Kissed Field
 category: 3d
